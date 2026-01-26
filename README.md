@@ -1,14 +1,63 @@
-<div align="center"> ‎<img height= "500" src= "https://files.catbox.moe/ckygqh.webp" />
-<div align="center"> <img width= "700" src= "https://64.media.tumblr.com/b87290bc5049c4b349486def95819bfc/9d6580a92a2e0604-34/s1280x1920/6299d3aa5ac41cbfec959f3905d621f130d7f9bb.pnj" />
-‎‎<div align="center">  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
-<div align="center"> Please do NOT ask to use me for supporter ^_^ at the end of the day no means no. Any beggers will be hidden, you have been warned. :]
-<div align="center"> Note: I'll probably do more stuff w / this when I learn how to do ts better, for now how have my shitty looking Github. :''3
-<div align="center">  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
-<div align="center"> <img width= "700" src= "https://64.media.tumblr.com/b87290bc5049c4b349486def95819bfc/9d6580a92a2e0604-34/s1280x1920/6299d3aa5ac41cbfec959f3905d621f130d7f9bb.pnj" />
-<div align="center">  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
-<div align="center"> - Hi! I'm Rody / Tenna, I really don't have much to put here, but PLEASE check out my rentry, atabook & strawpage! 
-<div align="center"> - DNI? : Basic dni stuff, just don't be weird and respect my bounderies and I'll be chill with ya! 
-<div align="center"> - INT? : I'm always open to interactions unless "DNIUC", "DNIUQPP", "DNIUBF", or any other DNI status is in my name! I'm also always open to cuddles :D 
-<div align="center"> - BYI? : Uhm nothing much to put here, just know I'm super shy even when it comes to ppl close to me so if I'm not talkative that's why :''3 
-<div align="center">  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
-<div align="center"> <img width= "300" src= "https://64.media.tumblr.com/d47eeaa9f42f7922f5afa76b3a9d8012/371aa2378a4ecf6b-b9/s250x400/b72bbbb5dff1f69d832d865ec6d0da5e066adb56.gifv" />
+<!--
+
+made by zixcore on discord!
+
+-->
+
+
+
+
+<div align="center">
+
+![div](https://i.imgur.com/hqhlLkg.png)
+
+![main](https://i.imgur.com/XWclMdE.png)
+
+![div](https://i.imgur.com/Z1re8wS.png)
+
+![div](https://i.imgur.com/KAvDGAa.png)
+
+<img align="right" width="300" height="325" alt="by zixcore on discord" src="https://i.imgur.com/58R276c.png"/>
+
+
+<table>
+  <tr>
+    <th>
+      $\color{#cf2163}{\textsf{About Me!! -}}$ <br>
+      $\color{#ebd4ff}{\textsf{Tenna/Rody}}$ <br>
+      $\color{#cf2163}{\textsf{!8+ Trans Man}}$ <br>
+      $\color{#ebd4ff}{\textsf{It/He}}$ <br>
+      $\color{#cf2163}{\textsf{C+H Always Allowed}}$ <br>
+      $\color{#ebd4ff}{\textsf{Romantically Taken: 10/4/25}}$ <br>
+      $\color{#cf2163}{\textsf{Platonically Taken: 12/31/25}}$ <br>
+      $\color{#ebd4ff}{\textsf{Check Out My Strawpage And Atabook Below!}}$ <br>
+</th>
+</tr>
+</table>
+
+[STRAWPAGE](https://rdylamoree.straw.page/)
+
+[ATABOOK](https://rdy-lamoree.atabook.org/)
+
+![div](https://i.imgur.com/Z1re8wS.png)
+
+<img align="left" width="300" height="325" alt="by zixcore on discord" src="https://i.imgur.com/EHYyjYF.png"/>
+
+<table>
+  <tr>
+    <th>
+      $\color{#cf2163}{\textsf{ }}$ <br>
+      $\color{#ebd4ff}{\textsf{“Hit the lights, commence the show}}$ <br>
+      $\color{#cf2163}{\textsf{We've got our stars and they can't go!}}$ <br>
+      $\color{#ebd4ff}{\textsf{All the games, just all the rounds}}$ <br>
+      $\color{#cf2163}{\textsf{I'll show you I can make you stick around...}}$ <br>
+      $\color{#ebd4ff}{\textsf{You better love your TV}}$ <br>
+      $\color{#cf2163}{\textsf{And stay glued to your screen!”}}$ <br>
+      $\color{#ebd4ff}{\textsf{ }}$ <br>
+</th>
+</tr>
+</table>
+
+[RENTRY](https://rdy-lamoree.atabook.org/)
+
+![div](https://i.imgur.com/jGHAnch.png)
